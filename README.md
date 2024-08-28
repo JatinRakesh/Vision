@@ -1,0 +1,1 @@
+This is a fun little project I worked on to help people who are not yet good at reading to develop their sense of reading to a level that they can impress their friends/colleagues by reading very fast 
